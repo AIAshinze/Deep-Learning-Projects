@@ -148,5 +148,5 @@ It demonstrates:
 ## 📬 Contact
 
 **Name:** Anthony II Ashinze\
-**Email:** your-email@example.com\
-**LinkedIn/GitHub/Twitter:** Add your links
+**Email:** Ifechukwudeashinze.work@gmail.com\
+**LinkedIn:** [Add your links](http://linkedin.com/in/ifechukwude-ashinze-175299197)
